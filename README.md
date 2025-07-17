@@ -1,1 +1,0 @@
-# guayaquilzdis8i
